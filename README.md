@@ -1,0 +1,2 @@
+# premium-horn-sculpt-001-horn-antler-sculpting-foam
+Stop juggling separate systems for horn and foam core projects. Your sculpting workflow deserves a single source of truth that respects the unique demands of both organic and synthetic materials.  This Notion template centralizes every aspect of horn and antler sculpting alongside foam core crafting, from material sourcing to finishing techniques.
